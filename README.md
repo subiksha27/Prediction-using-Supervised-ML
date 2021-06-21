@@ -9,4 +9,6 @@ DataSet Link: https://raw.githubusercontent.com/AdiPersonalWorks/Random/master/s
 
 Youtube Link: https://youtu.be/_VSFlVYv3ps
 
+LinkedIn post: https://www.linkedin.com/posts/subiksha-s-233792195_gripjune21-task1-thesparksfoundation-activity-6808797707596107776-3y2f
+
 By- S.Subiksha
